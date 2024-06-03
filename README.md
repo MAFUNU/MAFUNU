@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @trapkid__alvin (insta)
+-🥇 Top boy 🧢
+-🌍100,000: worldwide successful clients 
+- 📉24\7 growth (hq followers)
+- 📥dm for advertising 
+- 📥dm for promos
+- 📥 social media accounts management 
